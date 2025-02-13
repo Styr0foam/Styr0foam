@@ -2,6 +2,6 @@
 - I'm interested in a lot of things! Too many to list :,)
 - Currently learning Godot while studying digital art and animation !
 - Would love to collaborate on indie games !! 
-- You can reach me with my Special Business Email (tm) happosuchiren@gmail.com !
+- You can reach me at suchiren@proton.me !
 - I use any pronouns! Primarily use She/They :) 
 - Fun Fact! I have two brain celled
